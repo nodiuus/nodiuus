@@ -1,4 +1,4 @@
-hi there, i'm Nisan
+hi there, i'm nodius
 I love programming and creating music
 
 that's about it
