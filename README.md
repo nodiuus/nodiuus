@@ -4,4 +4,4 @@ I love programming and creating music
 that's about it
 
 if you want to chat with me:
-nodius#1647
+nodius#1647 / nodiuus
